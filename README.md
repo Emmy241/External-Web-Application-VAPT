@@ -117,8 +117,8 @@ Reflections and technical takeaways from this engagement are documented separate
 
 ## Contact
 
-- **LinkedIn:** (https://linkedin.com/in/emmanuelajayi241)
-- **Email:** (ajayiemmy241@gmail.com)
+- **LinkedIn:** https://linkedin.com/in/emmanuelajayi241
+- **Email:** ajayiemmy241@gmail.com
 
 ---
 
